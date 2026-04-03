@@ -2,7 +2,7 @@
 
   **Last updated: April 3, 2026**
   **Developer: Boran Çiftci**
-  **Contact: [your-email@example.com]**
+  **Contact: [boranjobs@icloud.com]**
 
   ---
 
