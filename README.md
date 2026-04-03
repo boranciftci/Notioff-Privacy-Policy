@@ -1,7 +1,7 @@
 # Privacy Policy for Notioff
 
   **Last updated: April 3, 2026**
-  **Developer: Boran Çiftci**
+  **Developer: Boran Çiftci** **412**
   **Contact: [boranjobs@icloud.com]**
 
   ---
